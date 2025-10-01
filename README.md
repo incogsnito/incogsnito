@@ -8,7 +8,7 @@
 
 ###
 
-<img align="left" height="200" src="https://s4.ezgif.com/tmp/ezgif-488b165ee1b6c5.gif"  />
+<
 
 ###
 
